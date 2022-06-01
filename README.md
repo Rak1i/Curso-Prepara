@@ -1,2 +1,0 @@
-# sistemaraki
-pramimirmão
